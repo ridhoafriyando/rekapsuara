@@ -1,2 +1,0 @@
-# rekapsuara
-partai amanat nasional
